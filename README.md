@@ -1,3 +1,4 @@
 # Lab_Assignment
 
-Hi there, I am Om Choudhary.
+Aaryash Singh.
+(E21CSEU0970)
